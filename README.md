@@ -66,7 +66,7 @@ Cape Peninsula University of Technology
 
 ## 🎥 Mock Interview
 
-[Watch my mock interview](PASTE YOUR VIDEO LINK HERE)
+[Watch my demo video](https://drive.google.com/file/d/1a6dhT3bs1xQaWGk9sJotxSF3fatRTgmT/view?usp=drive_link)))
 
 ---
 
